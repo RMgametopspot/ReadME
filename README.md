@@ -1,5 +1,5 @@
 About me :
-Kenneth Beck
+Kenneth Beck, 
 High school senior 2026 Richland High School,  Built computers, Fast learning ability, 
 
 Skills: 
